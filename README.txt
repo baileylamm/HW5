@@ -1,2 +1,0 @@
-Bailey
-Iowa Hawkeyes
